@@ -1,0 +1,5 @@
+- I’m @DeDawwg
+- I'm an Industrial IT student
+- I'm mostly study C++, I know Python, I'm planning to learn more about C# in the future
+- I'm trying my best as a begginer game dev
+- I have Discord. You can try to reach me there: 5960#dedawwg
